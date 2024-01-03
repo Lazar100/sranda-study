@@ -1,0 +1,2 @@
+# sranda-study
+Moja sranda 
